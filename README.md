@@ -7,7 +7,7 @@
 
 
         ゛ ⸝⸝.ᐟ⋆ 
-                 🍵 ,, Naeil!
+                 🍵 ,, Pawzy!
                 7Teen          iwc
                                      ゛ ⸝⸝.ᐟ⋆                
 
