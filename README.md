@@ -16,7 +16,7 @@
 
           Easily irriaited
                      agressive
-                             I have a tendcy to get uncomfortable easily.
+                             I have a tendcy to get uncomfortable easily. ꨄ︎ ,,
 
   ᭝ ᨳଓ ՟﹏﹏﹏﹏
 
@@ -24,6 +24,7 @@
                        Add
                           Adhd
                               low attention span
+                                                 🍵 ,,
 
 
 
