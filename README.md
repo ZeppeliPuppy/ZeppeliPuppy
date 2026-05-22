@@ -8,19 +8,19 @@
 
         ゛ ⸝⸝.ᐟ⋆ 
                  🍵 ,, Pawzy!
-                7Teen          iwc
+                7Teen    ฅ ฅ     iwc
                                      ゛ ⸝⸝.ᐟ⋆                
 
 
   ᭝ ᨳଓ ՟﹏﹏﹏﹏
 
-          Easily irriaited
+       ฅ ฅ Easily irriaited
                      agressive
                              I have a tendcy to get uncomfortable easily. ꨄ︎ ,,
 
   ᭝ ᨳଓ ՟﹏﹏﹏﹏
 
-           Anger issues.
+      ฅ ฅ  Anger issues.
                        Add
                           Adhd
                               low attention span
