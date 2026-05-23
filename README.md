@@ -7,7 +7,7 @@
 
 
         ゛ ⸝⸝.ᐟ⋆ 
-                 🍵 ,, Pawzy!
+                 🍵 ,, Pawzy/Nathan!
                 7Teen    ฅ ฅ     iwc
                                      ゛ ⸝⸝.ᐟ⋆                
 
